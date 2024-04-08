@@ -10,7 +10,7 @@ Through academics and independent projects💼, I've gained proficiency in creat
 
 
 
-As a recent graduate👨‍🎓, I am eager to use my skills and learn from seasoned experts in the field👨‍🔬. I am open to continuous learning and staying updated about the latest trends in web development🖥.
+As a recent graduate👨‍🎓, I am eager to use my skills and learn from seasoned experts in the field👨‍🔬.  I am open to continuous learning and staying updated about the latest trends in web development🖥.
 
 
 Contact Info:
